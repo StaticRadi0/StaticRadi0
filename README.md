@@ -4,6 +4,8 @@
 
 &nbsp; &nbsp; &nbsp; 𓏵 &nbsp; &nbsp; &nbsp; side acc. usually found in the hazbin area or with friends .ᐟ 
 
+&nbsp; &nbsp; &nbsp; 𓏵 &nbsp; &nbsp; &nbsp; [fandoms + ships](https://rentry.co/butterflyvirus-ext1)
+
 &nbsp; &nbsp; &nbsp; 𓏵 &nbsp; &nbsp; &nbsp; c + h always , huge cudcomf. ships can int! 
 
 &nbsp; &nbsp; &nbsp; 𓏵 &nbsp; &nbsp; &nbsp; usually offtab , please w2i ^_^
